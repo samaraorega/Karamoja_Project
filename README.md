@@ -42,7 +42,7 @@ Presentation
 
 After every research, we must present our ideas. The slides give a snippet of what the research entails and the findings. Among the recommendations that can be given after doing the vast analysis is, increasing productivity of sorghum in Amudat District, increasing productivity of maize in Moroto District and planting other crops that can do well in the 84,512 hectares of land.
 
-THANK YOU!!
+
 
 
 
